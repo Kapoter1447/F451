@@ -15,8 +15,7 @@ Remember writing short plot summary.
 
 3. What is the effect of Clarisse’s questions on Montag? Why do her questions have this effect?
 - He begins questioning things. 
-
-
+- 
 
 4. Compare Montag’s wife, Mildred, with Clarisse. Are they alike in any way? How are they different?
 They are opposite
