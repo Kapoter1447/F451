@@ -9,35 +9,55 @@ Remember:
 ### Plot 
 What is the story about? What are the main events of the story? What is the storyline? 
 
+- Goes
+
 ----------------------------------
 ### Character/ Characterization
 What kind of person is the character? What the person says, does, looks like, acts toward others, etc. What are the person’s beliefs, ideals, talents, vices, virtues, strengths, weaknesses? Character classification types include: protagonist, antagonist, foil, flat, round, static, dynamic, stereotype.
 
 #### Guy Montag
-Guy Montag works as a fireman. Firemen burn books for a living. His life is kind fo numb and quite reptetive. This changes more on that later. Montag often acts his feeling. When he wonders about the firemen origins, he ask. 
+Chapter 2:
+Now in part 2 of the book we can confirm that Montag cares for people. He spares the professor. He also wonders why things, and want to learn things. He want to keep the books. I previosly mentioned that he is brave, or at least unafraid. But now we know that he is acting by dispair
 
-// When his wife tried to kill herself, he says it to her, voices his concerns (I think). With clarisse he.... ... I feel like Montag does not act his feelings. For example after his wife nearly took
+i give up
 
-After a while we can understand that burning books is his life, it's what he lives for. Because his wife means bearly nothing to him. Whis we learn when his wife made a suicide attempt and during their relation after that. They never act as they love eachother, or at least Mildred don't. Montag is very upset after the suicide attempt. This could be because he has some love for Mildred or that he just realiese that their relationships is empty. This because Mildred doesn't feel like their relationship is wort living for. You also get a feeling that Mildred only is with montag for his money, more on that somewhere else. 
 
-The conversations with Clarisse is the only thing he seems to actually care about, except burning books. I get a sense that he likes to live risky. Jumps down hole and grabs pole last second. This point is strenghtened when we find out he is taking books. 
+#### Mildred
+- dont care much
+- her life is through the tv
+- barealy no feelings towards others
 
-Under the  course of the first chapter Montag breaks loose from his very repetetive habits; Going to work, return from work on repeat. He starts bonding with clarisse, which also becomes a habit to him. This we know because he is very surprised when she dissapears. 
-He loves habits and forms new ones easily.
-
-Clarisse has a large impact on Montags life. Through the conversations with Clarisse he also starts thinking. He starts to doubt his marriage, why he is bruning books. As mentioned earlier, books is his life. He is questioning his life.
-
-- how does he act
-- beliefs
-- talents
-
-#### Clarisse McClellan
-- Questions everything. "why?"
-- Independent thinker
-- "im 17 and im crazy"
+faber
+coward
 
 ------------------------------------
 ### Quotes
+"Books were only one type of receptacle where we stored a lot of things we were afraid we might forget"
+
+I think this qoute reminds me of why books were made to begin with, to store information, because we don't want to forget things. With books we can, as Montag said, learn from our mistakes. By burning them we forget what we once learned and what has happened. Soicety will need to "restart" because there is no ground to build on when there are no books.
+
+
+"... I can't talk to my wife, she talks with walls"
+
+While Montags wife actually talks with walls, the author could mean that walls are unsocial and not real friends. Like if you're talking to a wall.
+
+
 
 ---------------------------------------
 ### Chapter summary
+
+
+---------------------------------------
+
+### Other
+
+
+
+
+
+
+
+knowledge is power
+beatty is the only one with knowledge, and with power
+he wants to keep it that way
+burn books, and no one gets perspective
